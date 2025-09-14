@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yogaap113
+- 👋 Hi, I’m Yoga
 - 👀 I’m interested in Mathematics and Classic Literature
 
 <!---
